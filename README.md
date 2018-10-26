@@ -1,2 +1,2 @@
 # Hello, I'm Nathan.
-### There really isn't anything here.
+### This will all be updated soon. 
